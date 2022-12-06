@@ -3,7 +3,7 @@ Não estou promovendo absolutamente NADA! Peço desculpas por qualquer coisa, vo
 
 # Facismo
 
-Facismo é uma ideologoia de extrema anti-socialista, anti-comunista & imperalista. O estado controla a propiedade pública & privada.
+Facismo é uma ideologoia de extrema esquerda, anti-comunista & imperalista. O estado controla a propiedade pública & privada.
 Mussolini é o pai do facismo, fundada em março de 1919 juntamente com o partido de extrema, o nazismo.
 
 # Nazismo
