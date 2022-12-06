@@ -24,7 +24,7 @@ Um jovem expulso de shopping em Caruaru por usar suástia no braço é apreendid
 [Link para a reportagem](https://g1.globo.com/pe/caruaru-regiao/noticia/2021/06/18/jovem-expulso-de-shopping-em-caruaru-por-usar-suastica-no-braco-e-apreendido-pela-policia-civil-e-sera-encaminhado-ao-mppe.ghtml)
 
 Nesse ano a polícia prende grupo de jovens acustados de neonazismo em SC. Esse grupo usavam a sigla SS, abreviação para Schutzstaffel, o esquadrão mais leal e leta de Adolph Hitler. Um dos membros dessa célula neonazista é estudante do curso de Letras da Universidade Federal de SC. Outro integrante era estudante na UFSC, que cursa Letras.
-Link para reportagem](https://g1.globo.com/fantastico/noticia/2022/10/23/policia-prende-grupo-de-jovens-acusados-de-neonazismo-em-sc.ghtml)
+[Link para reportagem](https://g1.globo.com/fantastico/noticia/2022/10/23/policia-prende-grupo-de-jovens-acusados-de-neonazismo-em-sc.ghtml)
 
 # Anarquimo & neonazismo.
 
