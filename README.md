@@ -24,7 +24,7 @@ Um jovem expulso de shopping em Caruaru por usar suástia no braço é apreendid
 [Link para a reportagem](https://g1.globo.com/pe/caruaru-regiao/noticia/2021/06/18/jovem-expulso-de-shopping-em-caruaru-por-usar-suastica-no-braco-e-apreendido-pela-policia-civil-e-sera-encaminhado-ao-mppe.ghtml)
 
 Nesse ano a polícia prende grupo de jovens acustados de neonazismo em SC. Esse grupo usavam a sigla SS, abreviação para Schutzstaffel, o esquadrão mais leal e leta de Adolph Hitler. Um dos membros dessa célula neonazista é estudante do curso de Letras da Universidade Federal de SC. Outro integrante era estudante na UFSC, que cursa Letras.
-
+[Link para reportagem](https://g1.globo.com/fantastico/noticia/2022/10/23/policia-prende-grupo-de-jovens-acusados-de-neonazismo-em-sc.ghtml)
 
 # Anarquimo & neonazismo.
 
@@ -41,10 +41,10 @@ Isso é um grande problema, a comunidade inteiramente é formada por jovens de d
 A descontrução de uma sociedade é exibida de forma explicita, o Minecraft contém um mapa, os jogadores renascem no mesmo local se não terem um checkpoint (dormir em uma cama), geralmente é em um raio de 800 a -800 blocos para eixos X e Y. A diferença de um servidor não anarquista para um de anarquia é vísivel.
 
 Spawn atual do servidor (world dimension):
-![Spawn](https://i.redd.it/z5l6bi2k0wt71.jpg)
+![Spawn](https://i.redd.it/z5l6bi2k0wt71.jpg?raw=true)
 
 Spawn atual do servidor na dimensão nether:
-[Spawn Nether](https://static.miraheze.org/2b2twiki/thumb/a/a7/5k_nether_spawn_map.png/800px-5k_nether_spawn_map.png)
+![Spawn Nether](https://static.miraheze.org/2b2twiki/thumb/a/a7/5k_nether_spawn_map.png/800px-5k_nether_spawn_map.png?raw=true)
 
 ABSOLUTMANETE tudo, foi construido manualmente por players SEM ABSOLUTAMENTE nenhuma trapaça de administrador, é uma comunidade viva e insana, que vive em uma bolha social enorme de todos os servidores do Minecraft.
 
