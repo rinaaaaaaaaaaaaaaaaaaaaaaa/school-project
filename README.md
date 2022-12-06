@@ -8,10 +8,8 @@ Mussolini é o pai do facismo, fundada em março de 1919 juntamente com o partid
 
 # Nazismo
 
-Fundada por ninguém menos que Hitler, nazismo é uma ideologia de natureza desumana e cruel. As habilidades de persuassão e motivação de Hitler fez com que a sua ideologia nazista fosse apoiada pelo povo alemão, o nazismo trouxe um falso temporario poder para a
+Fundada por ninguém menos que Hitler, nazismo é uma ideologia de natureza desumana e cruel. Sua aparição no mundo foi de forma sangrenta, exterminio extremo **holocausto**. Nazismo é um partido de extrema anti-comunista, uma das principais idéias era a veneração de Hitler como o principal e único salvador da alemãnha, um culto irracional & persuassivo. A supremacia racial, antiliberalismo & antimarxista era os fundamentos pregados pelo partido nazista, o ódio irracional e supremacista contra os judeos eram pregados com o assasinato e exterminio. As habilidades de persuassão e motivação de Hitler fez com que a sua ideologia nazista fosse apoiada pelo povo alemão, o nazismo trouxe um falso temporario poder para a
 alemãnha, refletindo uma sangrenta II guerra mundial.
-
-Nazismo é um partido de extrema anti-comunista, uma das principais idéias era a veneração de Hitler como o principal e único salvador da alemãnha, um culto irracional & persuassivo. A supremacia racial, antiliberalismo & antimarxista era os fundamentos pregados pelo partido nazista, o ódio irracional e supremacista contra os judeos eram pregados com o assasinato e exterminio.
 
 O nazismo é contra o feminismo, anarquismo, trans, gays & negras.
 
