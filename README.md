@@ -1,3 +1,6 @@
+O trabalho foi feito para refletir sobre o que foi nazismo e como isso ainda afeta o nosso mundo atual.
+Não estou promovendo absolutamente NADA! Peço desculpas por qualquer coisa, vou apagar após apresentar!
+
 # Facismo
 
 Facismo é uma ideologoia de extrema anti-socialista, anti-comunista & imperalista. O estado controla a propiedade pública & privada.
