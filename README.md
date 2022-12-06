@@ -1,7 +1,7 @@
 # Facismo
 
 Facismo é uma ideologoia de extrema anti-socialista, anti-comunista & imperalista. O estado controla a propiedade pública & privada.
-Mussoloni é o pai do facismo, fundada em março de 1919 juntamente com o partido de extrema, o nazismo.
+Mussolini é o pai do facismo, fundada em março de 1919 juntamente com o partido de extrema, o nazismo.
 
 # Nazismo
 
