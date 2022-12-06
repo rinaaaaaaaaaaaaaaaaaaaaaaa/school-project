@@ -53,5 +53,6 @@ Spawn atual do servidor na dimensão nether:
 
 ABSOLUTMANETE tudo, foi construido manualmente por players SEM ABSOLUTAMENTE nenhuma trapaça de administrador, é uma comunidade viva e insana, que vive em uma bolha social enorme de todos os servidores do Minecraft.
 
+Os recursos usados para fazer essa construções são anos de produção privada e comercialização envolvendo dinheiro real, trapaças por jogadores (cheats).
 Como você pode ver existem suasticas nazistas no meio desses desenhos, compreensivel não?
 
