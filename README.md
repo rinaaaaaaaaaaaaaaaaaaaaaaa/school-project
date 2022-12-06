@@ -20,7 +20,7 @@ O neonazismo tornou-se profissional e deixou de agir clandestinamente, raramente
 
 A internet é uma das maravilhas tecnologicas já feita, acontece que os grupos neonazistas sairam de lugares secretos para fórums, grupos de whatsapp, telegram, discord & também no TikTok. Um belo exemplo de movimento neonazista é os servidores do discord, existem milhares de servidores que simplismente não ligam para seus membros e promovem o neonazismo & o neofacismo indiretamente.
 
-Um jovem expulso de shopping em Caruaru por usar suástia no braço é apreendido pela Polícia Civil. Isso é um exemplo de neonazismo aqui no Brasil, o fato aconteceu em 2021, o jovem não tem noção da profunda crueldade do nazismo.  
+Um jovem expulso de shopping em Caruaru por usar suástia no braço é apreendido pela Polícia Civil. Isso é um exemplo de neonazismo aqui no Brasil, o fato aconteceu em 2021, o jovem não tem noção da profunda crueldade do nazismo.
 [Link para a reportagem](https://g1.globo.com/pe/caruaru-regiao/noticia/2021/06/18/jovem-expulso-de-shopping-em-caruaru-por-usar-suastica-no-braco-e-apreendido-pela-policia-civil-e-sera-encaminhado-ao-mppe.ghtml)
 
 Nesse ano a polícia prende grupo de jovens acustados de neonazismo em SC. Esse grupo usavam a sigla SS, abreviação para Schutzstaffel, o esquadrão mais leal e leta de Adolph Hitler. Um dos membros dessa célula neonazista é estudante do curso de Letras da Universidade Federal de SC. Outro integrante era estudante na UFSC, que cursa Letras.
