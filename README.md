@@ -26,12 +26,12 @@ A internet é uma das maravilhas tecnologicas já feita, acontece que os grupos 
 Um jovem expulso de shopping em Caruaru por usar suástia no braço é apreendido pela Polícia Civil. Isso é um exemplo de neonazismo aqui no Brasil, o fato aconteceu em 2021, o jovem não tem noção da profunda crueldade do nazismo.
 [Link para a reportagem](https://g1.globo.com/pe/caruaru-regiao/noticia/2021/06/18/jovem-expulso-de-shopping-em-caruaru-por-usar-suastica-no-braco-e-apreendido-pela-policia-civil-e-sera-encaminhado-ao-mppe.ghtml)
 
-Nesse ano a polícia prende grupo de jovens acustados de neonazismo em SC. Esse grupo usavam a sigla SS, abreviação para Schutzstaffel, o esquadrão mais leal e leta de Adolph Hitler. Um dos membros dessa célula neonazista é estudante do curso de Letras da Universidade Federal de SC. Outro integrante era estudante na UFSC, que cursa Letras.
+Nesse ano a polícia apreende grupo de jovens acustados de neonazismo em SC. Esse grupo usavam a sigla SS, abreviação para Schutzstaffel, o esquadrão mais leal e letal de Adolph Hitler. Um dos membros dessa célula neonazista é estudante do curso de Letras da Universidade Federal de SC. Outro integrante era estudante na UFSC, que cursa Letras.
 [Link para reportagem](https://g1.globo.com/fantastico/noticia/2022/10/23/policia-prende-grupo-de-jovens-acusados-de-neonazismo-em-sc.ghtml)
 
 Reportagem sobre TikTok: [link](https://visao.sapo.pt/atualidade/sociedade/2021-11-06-o-problema-nazi-dotiktok/)
 
-# Anarquimo & neonazismo.
+# Anarquismo & neonazismo.
 
 O anarquismo é um etágio de qualquer sociedade, a vinda da europa para o Brasil deu ínicio a uma sociedade anarquista e escravocrata. Os anarquistas defendem a socialização da produção privada, ou seja, você tem direito de fazer o que quiser mesmo que isso afete negativamente a sua vida.
 
@@ -53,6 +53,5 @@ Spawn atual do servidor na dimensão nether:
 
 ABSOLUTMANETE tudo, foi construido manualmente por players SEM ABSOLUTAMENTE nenhuma trapaça de administrador, é uma comunidade viva e insana, que vive em uma bolha social enorme de todos os servidores do Minecraft.
 
-Os recursos usados para fazer essa construções são anos de produção privada e comercialização envolvendo dinheiro real, trapaças por jogadores (cheats).
-Como você pode ver existem suasticas nazistas no meio desses desenhos, compreensivel não?
+Os recursos usados para fazer essa construções são anos de produção privada, comercialização envolvendo dinheiro real e trapaças de jogadores (cheats).
 
