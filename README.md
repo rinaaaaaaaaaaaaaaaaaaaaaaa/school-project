@@ -26,6 +26,8 @@ Um jovem expulso de shopping em Caruaru por usar suástia no braço é apreendid
 Nesse ano a polícia prende grupo de jovens acustados de neonazismo em SC. Esse grupo usavam a sigla SS, abreviação para Schutzstaffel, o esquadrão mais leal e leta de Adolph Hitler. Um dos membros dessa célula neonazista é estudante do curso de Letras da Universidade Federal de SC. Outro integrante era estudante na UFSC, que cursa Letras.
 [Link para reportagem](https://g1.globo.com/fantastico/noticia/2022/10/23/policia-prende-grupo-de-jovens-acusados-de-neonazismo-em-sc.ghtml)
 
+Reportagem sobre TikTok: [link](https://visao.sapo.pt/atualidade/sociedade/2021-11-06-o-problema-nazi-dotiktok/)
+
 # Anarquimo & neonazismo.
 
 O anarquismo é um etágio de qualquer sociedade, a vinda da europa para o Brasil deu ínicio a uma sociedade anarquista e escravocrata. Os anarquistas defendem a socialização da produção privada, ou seja, você tem direito de fazer o que quiser mesmo que isso afete negativamente a sua vida.
