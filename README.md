@@ -41,7 +41,7 @@ Isso é um grande problema, a comunidade inteiramente é formada por jovens de d
 A descontrução de uma sociedade é exibida de forma explicita, o Minecraft contém um mapa, os jogadores renascem no mesmo local se não terem um checkpoint (dormir em uma cama), geralmente é em um raio de 800 a -800 blocos para eixos X e Y. A diferença de um servidor não anarquista para um de anarquia é vísivel.
 
 Spawn atual do servidor (world dimension):
-![Spawn World](https://github.com/rinaaaaaaaaaaaaaaaaaaaaaaa/school-project/blob/main/333-1240-1-PB.pdf?raw=true)
+![Spawn World](https://github.com/rinaaaaaaaaaaaaaaaaaaaaaaa/school-project/blob/main/z5l6bi2k0wt71.jpg?raw=true)
 
 Spawn atual do servidor na dimensão nether:
 ![Spawn Nether](https://static.miraheze.org/2b2twiki/thumb/a/a7/5k_nether_spawn_map.png/800px-5k_nether_spawn_map.png?raw=true)
